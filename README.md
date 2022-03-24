@@ -1,0 +1,1 @@
+# HOPE-BetterDiscord-Stuff lol
